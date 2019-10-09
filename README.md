@@ -19,7 +19,6 @@ I'd have to stop an' rest awhile, when they could capture me.
 Then when they leapt onto my bed, Oh Gee! But they were mad
 To find that I had slipped away an' crawled in bed with dad.
 
-Source: https://www.familyfriendpoems.com/poem/being-brave-at-night-by-edgar-albert-guest
 
 No giants, ghosts or elephants have dared to come in there
 'Coz if they did he'd beat 'em up and chase 'em to their lair.
